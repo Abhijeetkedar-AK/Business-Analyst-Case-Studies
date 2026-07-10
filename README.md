@@ -1,4 +1,4 @@
-# Business Analyst Projects Portfolio
+# Business Analyst Case Study Portfolio
 
 ## Overview
 
